@@ -1,4 +1,4 @@
-Qj mi kuro
+Qj mi kuro (pak)
 
 # deba
 deba
